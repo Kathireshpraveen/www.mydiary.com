@@ -1,0 +1,1 @@
+# www.mydiary.com
